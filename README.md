@@ -7,4 +7,3 @@ King Mongkut's Institute of Technology Ladkrabang
 
 ![.](https://media.discordapp.net/attachments/678969369476464641/953012644489605160/unknown.png)
 
-:heart:
